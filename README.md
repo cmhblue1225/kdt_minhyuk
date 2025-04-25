@@ -1,2 +1,0 @@
-# kdt_minhyuk
-aa
